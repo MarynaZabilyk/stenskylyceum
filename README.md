@@ -1,1 +1,1 @@
-# stenskylyceum
+# stepanskylyceum
